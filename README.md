@@ -1,3 +1,1 @@
--  Hi, I’m trusteda n shitty coder of mods to fnf and ports to android
--  I’m interested in android fnf ports
--  I’m currently learning haxe
+dshsadhsadhlksadklad
